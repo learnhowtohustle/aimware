@@ -13,5 +13,7 @@
 8. LOAD IT!
 9. Wait patiently it might take a minute or 2.
 
+![IMG](https://cdn.discordapp.com/attachments/1072373696557228072/1072374713407524927/image.png)
+
 
 
